@@ -11,7 +11,7 @@
 
 - 👯 I’m planning to **Study in MIT (USA)**
 
-- 🤝 I’m looking for **Work From Home Internship Opportunities (Paid or Unpaid)**
+- 🤝 I’m looking for **Work From Home Internship Opportunities**
 
 - 📫 How to reach me **dipanshutiwari115@gmail.com**
 
