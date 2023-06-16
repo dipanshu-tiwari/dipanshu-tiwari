@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning **App Development and Mathine Learning**
 
-- 👯 I’m planning to **Study in MIT (USA)**
+- 👯 I’m planning to **Study**
 
 - 🤝 I’m looking for **Work From Home Internship Opportunities**
 
